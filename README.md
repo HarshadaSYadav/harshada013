@@ -7,8 +7,7 @@
 -Let's shape the digital future together! 🚀
 
 
-
-<a href=" https://www.linkedin.com/in/harshadayadav13/ " >  Link of Linkedin Profile </a>
+<a href="https://www.linkedin.com/in/harshadayadav13/"> Link of Linkedin Profile </a>
 
 
 
